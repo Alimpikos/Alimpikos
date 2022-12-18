@@ -1,5 +1,4 @@
 👋 Hi, I'm @Alimpikos
-  I'm from Russia 🇷🇺
 - 👀 I am interested in the layout
 - 🌱 I am currently self-taught
 - 📫 How to contact me:
